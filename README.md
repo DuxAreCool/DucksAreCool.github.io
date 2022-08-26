@@ -1,1 +1,1 @@
-# DucksAreCool (yes they are)
+# DucksAreCool
